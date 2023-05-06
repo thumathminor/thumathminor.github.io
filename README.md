@@ -1,0 +1,1 @@
+# thumathminor.github.io
